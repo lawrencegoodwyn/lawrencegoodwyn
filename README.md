@@ -1,4 +1,4 @@
-# Hey there, I’m Tyler 👋🏾  
+# Hey there, I’m Lawrence 👋🏾  
 
 Data whisperer. Systems thinker. Recovering from “Can you pull me that report real quick?” syndrome.  
 
